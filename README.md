@@ -1,5 +1,5 @@
 # 💫 About Me:
-Independent Creative Developer based in Pakistan.<br><br>⚡ Currently building @ Last Signal ®
+Independent Creative Developer based in Pakistan.
 
 
 ## 🌐 Socials:
